@@ -1,4 +1,4 @@
-### Hi there, Denis 👋
+### Hi there, I`m Denis 👋
 
 - 🔭 I’m currently working on a lot of upgrading my skills
 - 🌱 I’m currently learning everything I can get my hands on
